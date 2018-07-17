@@ -1,0 +1,17 @@
+---
+layout:     post
+title:      "Welcome to miao2 Blog"
+subtitle:   " \"Hello World, Hello Blog\""
+date:       2018-07-17 12:00:00
+author:     "miao2"
+header-img: "img/post-bg-2015.jpg"
+tags:
+    - 101
+---
+
+> “Yeah It's on. ”
+
+
+## 前言
+
+—— miao2 后记于 2018.7
