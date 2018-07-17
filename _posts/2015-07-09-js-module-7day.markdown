@@ -8,7 +8,7 @@ author:     "Hux"
 header-img: "img/post-bg-js-version.jpg"
 tags:
     - 前端开发
-    - JavaScript
+    - 101
 ---
 
 
