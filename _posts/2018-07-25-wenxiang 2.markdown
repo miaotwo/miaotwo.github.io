@@ -1,0 +1,16 @@
+---
+layout:     post
+title:      "Welcome to miao2 Blog"
+subtitle:   " \"Hello World, Hello Blog\""
+date:       2018-07-19 12:00:00
+author:     "miao2"
+header-img: "img/post-bg-2015.jpg"
+tags:
+    - beibidegaozi
+---
+
+> “Yeah It's on. ”
+
+
+ajdsadgasugasugausgdausg
+![](img/in-post/闻香 2/6.png)
