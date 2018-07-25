@@ -15,4 +15,4 @@ tags:
 ajdsadgasugasugausgdausg
 ![](/img/in-post/闻香 2/6.png)
 
-<video id="video-index" autoplay="true" loop="true" src="http://echarts.baidu.com/video/index-4.mp4" poster="http://echarts.baidu.com/video/index-4.jpg" style="width: auto; height: 703px; margin-top: 0px; margin-left: -241px;"></video>
+<video id="video-index" autoplay="true" loop="true" src="http://echarts.baidu.com/video/index-4.mp4" poster="http://echarts.baidu.com/video/index-4.jpg" style="width: auto; height: 203px; margin-top: 0px; margin-left: -241px;"></video>
