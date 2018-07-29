@@ -1,7 +1,7 @@
 ---
 layout:     post
 title:      "必要的更新和时间轴"
-subtitle:   " \"怎么这么多bug啊= =\""
+subtitle:   " \"\""
 date:       2018-07-29 12:00:00
 author:     "miao2"
 header-img: "img/post-bg-2015.jpg"
