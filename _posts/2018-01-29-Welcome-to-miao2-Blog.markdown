@@ -20,7 +20,7 @@ tags:
 
 [**@Hux黄玄**](https://weibo.com/huxpro)：提供 Blog 模板的开源项目<br>**@DDElephant&ensp;@Selena_Chris&ensp;@野生程序员Jason&ensp;@Tiger CAI**&ensp;帮助建立环境及理解代码
 
-## 🐴 前言建站目的
+## 🐴 建站目的
 
 8012年了，miao2 才有自己的博客，期间遇到过很多困难，多亏有朋友帮助，开始想直接用  wordpress  一键生成但是觉得样子太丑，还不能排版，于是选择自建来满足过度的表达欲;
 
