@@ -1,0 +1,17 @@
+---
+layout:     post
+title:      "开始更了"
+subtitle:   " \"更更更更更更更更\""
+date:       2019-05-12 12:00:00
+author:     "miao2"
+header-img: "img/post-bg-2015.jpg"
+tags:
+    - 生活
+---
+
+> “您好，更了。 ”
+
+
+从今天起，开始更新。
+
+
