@@ -14,8 +14,7 @@ tags:
 
 一些新的尝试
 
-![1](/Users/miaoo718/Documents/GitHub/miaotwo.github.io/img/porntextbook/1.png)
-**艾什刚登场的第一个周末速涂**
+
 
 
 ![2](/Users/miaoo718/Documents/GitHub/miaotwo.github.io/img/porntextbook/02.jpg)
