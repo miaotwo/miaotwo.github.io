@@ -1,7 +1,7 @@
 ---
 layout:     post
 title:      "miao2’s porn-textbook"
-subtitle:   " \"看看色图\""
+subtitle:   " \"z? kk色图。\""
 date:       2019-07-20 12:00:00
 author:     "miao2"
 header-img: "img/post-bg-2015.jpg"
@@ -9,31 +9,30 @@ tags:
     - 互联网并非法外号之地
 ---
 
-> “给你康康 ”
+> “没有色图看我要s了”
 
 
-一些新的尝试
-
-![1](/Users/miaoo718/Documents/GitHub/miaotwo.github.io/img/porntextbook/1.png)
-**艾什刚登场的第一个周末速涂**
+**2019 年的一些新的尝试。**
 
 
-![2](/Users/miaoo718/Documents/GitHub/miaotwo.github.io/img/porntextbook/02.jpg)
-**《 最美的岛屿 | Most Beautiful Island》女主**
+
+![1](/img/porntextbook/1.png)
+**艾什刚登场的周末速涂**   _**(2018.11.3)**_
+
+![2](/img/porntextbook/02.jpg)
+**《 最美的岛屿 | Most Beautiful Island》女主** _**(2018.11.25)**_
+
+![3](/img/porntextbook/1.jpg)
+**《川尻善昭》中的一个镜头** _**(2018.9.6)**_
+
+![4](/img/porntextbook/03.png)
+**I always love Doggy-Style** _**(2018.6.7)**_
+
+![5](/img/porntextbook/4.png)
+**放课后偶尔要做适量运动** _**(2019.7.14)**_
+
+![6](/img/porntextbook/2.png)
+**胡乱画的** _**(2018.9.8)**_
 
 
-![3](/Users/miaoo718/Documents/GitHub/miaotwo.github.io/img/porntextbook/1.jpg)
-**《川尻善昭》中的一个镜头**
-
-
-![4](/Users/miaoo718/Documents/GitHub/miaotwo.github.io/img/porntextbook/03.png)
-**I always love Doggy-Style**
-
-
-![5](/Users/miaoo718/Documents/GitHub/miaotwo.github.io/img/porntextbook/4.png)
-**放课后偶尔也应该做适量运动**
-
-
-![6](/Users/miaoo718/Documents/GitHub/miaotwo.github.io/img/porntextbook/2.png)
-**胡乱画的**
-
+**先这样，如果有更新会继续在这里连载。**
